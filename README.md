@@ -1,1 +1,0 @@
-# lgq895767507-new.github.io
